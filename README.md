@@ -1,1 +1,1 @@
-There is nothing permenant, except change.
+To improve is to change. There is nothing permenant, except change.
